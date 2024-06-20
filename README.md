@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @kovabait12
 - 👀 Me like computor
-- 🌱 Me learn computor
 - 💞️ Me love Breezy Weather
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Me use arch btw
